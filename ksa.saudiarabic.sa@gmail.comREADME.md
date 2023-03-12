@@ -1,1 +1,1 @@
-# ptway.net
+https://ci5.googleusercontent.com/proxy/PxPnAs8fagY4_-9iLXjdL3xCA9Fifvcmu5PykgJYV39MLVCAhArZYzaNgtNjoiLz2dTKfECLXJ27QWb1TvDpQXjKDxlAUh4vSFf3-F4_1i-_EM59KnlYQXvEOq7NsGMo=s0-d-e1-ft#https://ssl.gstatic.com/docs/doclist/images/mediatype/icon_1_document_x64.png#ptway 
